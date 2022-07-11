@@ -2,8 +2,8 @@
 
 ## Autores
 - Fer Martin - f3r
--Patricia
+- Patricia - nekosama79
 
 ## Frase Motivacional Favorita
 - If you can dream it, you can achieve it
--No esperes. Nunca va a ser el momento adecuado
+- No esperes. Nunca va a ser el momento adecuado
